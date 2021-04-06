@@ -3,7 +3,6 @@
 ### Ingredientes
 
 - feijao
-- 
 - 4 [peitos de frango pequenos](https://www.teleculinaria.pt/ingrediente/peitos-de-frango-pequenos/)
 - 3 [dentes de alho](https://www.teleculinaria.pt/ingrediente/dentes-de-alho/)
 - 400 ml [de natas](https://www.teleculinaria.pt/ingrediente/de-natas/)
